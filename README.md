@@ -1,7 +1,7 @@
 
 ### Desktop
 
-![preview desktop](https://imagizer.imageshack.com/img922/9214/5WZSYU.jpg)
+![preview desktop](https://imagizer.imageshack.com/img921/8459/NSvsux.gif)
 
 
 ### Mobile
